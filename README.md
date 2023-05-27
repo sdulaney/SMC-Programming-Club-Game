@@ -1,1 +1,0 @@
-# SMC-Programming-Club-Game
